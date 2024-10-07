@@ -1,0 +1,7 @@
+- 👋 Hi, I’m something
+- 👀 I’m interested in: Staying sane
+- 🌱 I’m currently learning: to make game
+- 💞️ I’m looking to collaborate on: Social interaction will hurt me
+- 📫 How to reach me: Do not
+- 😄 Pronouns: Heh/Hah
+- ⚡ Fun fact: I have no affiliation to anyone else this was made for fun please don't hurt me :I
